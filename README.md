@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @practicalme
+- 👀 I’m interested in coding while I'm fudged
+- 🌱 I’m currently learning Javascript 
+- 📫 How to reach me kpourmohammady@gmail.com
+- 😄 Pronouns: she👍
+- ⚡ Fun fact: hairstylist 🥲
